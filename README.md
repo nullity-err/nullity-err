@@ -6,4 +6,6 @@
 
 #
 
-${\color{#323232}\text{test agghhhahzh}}$ fixing ts like tmmrw
+${\color{#323232}\text{null / nullary / neil wthever}}$
+
+${\color{#323232}\text{ a }}$
