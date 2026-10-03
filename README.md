@@ -11,4 +11,11 @@ ${\color{#323232}\text{null / nullary / neil wthever}}$
 
 $${\color{#0D1017}\text{space}}$$
 <P align="center">
-${\color{#323232}\text{ a }}$
+${\color{#323232}\text{strictly he/him, unless u dunno me.}}$
+
+$${\color{#0D1017}\text{space}}$$
+<P align="center">
+${\color{#323232}\text{no I'm not a neil fictkin,}}$
+ 
+<P align="center">
+${\color{#323232}\text{and no I'm not a neil yumeshipper.}}$
