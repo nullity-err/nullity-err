@@ -11,7 +11,7 @@ ${\color{#323232}\text{null / nullary / neil wthever}}$
 
 $${\color{#0D1017}\text{space}}$$
 <P align="center">
-${\color{#323232}\text{strictly he/him, unless u dunno me.}}$
+${\color{#323232}\text{strictly he/him, unless u didnt know me.}}$
 
 $${\color{#0D1017}\text{space}}$$
 <P align="center">
