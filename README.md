@@ -22,3 +22,5 @@ ${\color{#323232}\text{and no I'm not a neil yumeshipper.}}$
 
 <P align="center">
 ${\color{#323232}\text{i just love this guy, thats all.}}$
+
+[prns.cc](https://pronouns.cc/@nulltastic-behavior)
