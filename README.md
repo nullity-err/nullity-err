@@ -25,6 +25,10 @@ ${\color{#323232}\text{i just love this guy, thats all.}}$
 
 $${\color{#0D1017}\text{space}}$$
 
+${\color{#323232}\text{i dont think I'm finishing this}}$
+
+$${\color{#0D1017}\text{space}}$$
+
 $${\color{#0D1017}\text{space}}$$
 
 #
