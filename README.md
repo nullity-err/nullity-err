@@ -2,7 +2,7 @@
 
 <P align="center"> 🕶️
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=3000&pause=300&color=323232&center=true&width=435&lines=we+will+never+get+along,;trust+me+with+that.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=2500&pause=300&color=323232&center=true&width=435&lines=Why+can't+we+laugh+now,;like+we+did+then?;How+come+I+see+you,;and+ACHE+instead?;How+come+you+only+look-;pleased+in+bed?;Let's+climb+the+cliff+edge,;and+JUMP+again.)](https://git.io/typing-svg)
 
 #
 $${\color{#0D1017}\text{space}}$$
