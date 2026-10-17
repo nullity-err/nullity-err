@@ -36,6 +36,6 @@ $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
-[prns.cc](https://pronouns.cc/@nulltastic-behavior)
+[prns.cc](https://pronouns.cc/@nulltastic-behavior) 　　 　　 　　 　[TT](https://www.tiktok.com/@.ohmysploinkerz)
 
 #
